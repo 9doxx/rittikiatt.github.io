@@ -1,1 +1,0 @@
-# rittikiatt.github.io
